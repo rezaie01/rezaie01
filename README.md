@@ -43,6 +43,7 @@ Ich bin immer offen für neue Herausforderungen und Kontakte.
 
 * 📧 **E-Mail:** [rezaie.de.01@gmail.com](mailto:rezaie.de.01@gmail.com)
 * **Mein GitHub:** [@rezaie01](https://github.com/rezaie01)
+* <img src="https://cdn-icons-png.flaticon.com/128/2111/2111463.png" loading="lazy" alt="instagram " title="instagram " width="14" height="14"> [https://www.threads.com/@_habi.me?xmt=AQF0LULMNc_wJQ-hYA83ZQf9ttjafo2Xd85KsW5kV7hlO8s](@__habi.me)
 
 ---
 
