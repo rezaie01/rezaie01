@@ -6,6 +6,6 @@
 ### Currently Doing
 - **C & Bare-Metal Projects**
 - **Bouldering & Running**
-- **Closing my habit loop :) **
+- **Closing my habit loop :)**
 
 ### And you?
